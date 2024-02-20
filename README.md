@@ -1,0 +1,1 @@
+Meus rascunhos das aulas metodo TAJS do mano Erick wendel
